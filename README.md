@@ -1,4 +1,1 @@
 # kodluyoruzilkrepo
-##llll
-####llkmıkm
-#ddddd
